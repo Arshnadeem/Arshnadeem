@@ -29,7 +29,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **mohdarshnadeem@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/66f0582657e07d4cbe7cc492](https://app.luminpdf.com/viewer/66f0582657e07d4cbe7cc492)
+- 📄 Know about my experiences [https://app.luminpdf.com/viewer/66f0582657e07d4cbe7cc492]([https://app.luminpdf.com/viewer/66f0582657e07d4cbe7cc492](https://docs.google.com/document/d/1CNpfLI54s6lcPqRSHA0OPSTTuuuri8-yZxnkQXOy8uc/edit?tab=t.0))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
